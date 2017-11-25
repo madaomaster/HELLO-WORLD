@@ -1,2 +1,7 @@
 # HELLO-WORLD
 LEARNING HOW TO DO IT
+
+HI HUMANS!
+
+NEWER HERE, WANDERING IS HERE ANYTHING INTERESTING.
+I LIKE ‘xx-net’， for i can use it view internet overseas.
